@@ -1,0 +1,1 @@
+# takaiteasy.github.io
